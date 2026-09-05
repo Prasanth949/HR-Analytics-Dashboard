@@ -1,1 +1,0 @@
-HR Analytics project presentation.
